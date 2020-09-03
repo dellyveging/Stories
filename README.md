@@ -25,8 +25,6 @@ They couldn’t explain them until scientists looked at the moon dust under a mi
 Without the benefit of erosion and wind like we have on Earth, the tiny particles of dust had sharp edges and it was the dust that was collecting on the spacesuits that was causing the slices as they moved in them.
 The surface of the moon has lighter areas that are called the highlands. It also has darker features that are referred to as “maria,” which is Latin for seas.
 
-![l](https://icdn.lenta.ru/images/2016/01/21/00/20160121000737410/detail_34242ca722712f235d1486610a6f8ae5.)
-
 These are impact basins that were lava filled around 4.2-1.2 billion years ago. Both the dark and light areas are made up of different compositions and show how the moon’s early crust might have risen and crystallized from the magma ocean.
 
 The craters may be billions of years old and scientists study them to get an idea of the history of impacts that the moon experienced. This history can tell them a lot about impacts from other bodies in the inner solar system.
